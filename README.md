@@ -1,1 +1,1 @@
-# blpginkor.github.io
+# blpg.github.io
